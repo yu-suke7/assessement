@@ -1,0 +1,2 @@
+# assessement
+いいところ診断
